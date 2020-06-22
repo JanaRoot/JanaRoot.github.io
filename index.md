@@ -1,5 +1,5 @@
 # Lucy Hale
 
-Karen Lucille Hale ist eine US-amerikanische Schauspielerin und Sängerin. 
-Sie gewann die Reality-Show American Juniors. 
-Bekannt wurde sie durch ihre Rollen als Beca Sommers in Bionic Woman und Aria Montgomery in Pretty Little Liars. 
+Lucy Hale is an American actress and singer. 
+She was born Karen Lucille Hale in Memphis, Tennessee, to Julia Knight and John Preston Hale. 
+She started out as a singer, appearing on American Juniors in a search for band members.  
