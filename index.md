@@ -10,3 +10,5 @@ She started out as a singer, appearing on American Juniors in a search for band 
 * 1,57 m 
 * Thick eyebrows
 * Is the youngest of 3 children.
+
+> My ultimate dream is to become a famous star because I love to sing.
